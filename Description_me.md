@@ -1,0 +1,6 @@
+- Name : Poseidon
+- I enjoy playing games rythm games and strategy games.
+- I’m currently learning Java,Python,C++
+- I’m looking to collaborate on making games or just play games if interested :D.
+- How to reach me - Work Gmail: poseidon32323232@gmail.com
+                  - Discord: Poseidon#4139
